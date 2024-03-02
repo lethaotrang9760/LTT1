@@ -8,4 +8,4 @@ Người ta học được từ thất bại nhiều hơn từ thành công. B�
 Cố lên !
 Tương lai khóc hay cười phụ thuộc nhiều vào độ lười của quá khứ.
 Đừng thở dài hãy vươn vai mà sống, bùn dưới chân nhưng nắng ở trên đầu...
- An old year passed, a new year has come. I wish you will get achievements of your dreams..
+ An old year passed, a new year has come. I wish you will get achievements of your dreams.
